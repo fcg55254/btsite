@@ -7,7 +7,7 @@
 * [BTSOW](https://btsow.club)
 * [ACG.RIP](https://acg.rip/)
 * [简单动漫](https://www.36dm.club/)
-* [GGBases-galgame BT/磁力鏈結下載倉庫!](https://www.ggbases.com/)
+* [GGBases](https://www.ggbases.com/)
 * []()
 * []()
 * []()
